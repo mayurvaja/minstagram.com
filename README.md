@@ -1,1 +1,1 @@
-# minstagram.com
+# minta.com
